@@ -19,4 +19,4 @@ The official skid list. The following users are the scum of this community and s
 * "Eman0039" - Fat skid and scammer he can suck my left nut.
 * "ItzAssassin"- (can he even code in java?. no i dont think so...).
 * "Kappios"- uses notifyz core and says he is coding it xdd fuck your self.
-* "Mython" - Skid and harmless asf xddd. "Claimed he doxed me" (he thinks my name is alex)
+* "Mython/MittenDev" - Skid and harmless asf xddd. "Claimed he doxed me" (he thinks my name is alex)
