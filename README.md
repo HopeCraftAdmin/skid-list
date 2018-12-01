@@ -20,3 +20,4 @@ The official skid list. The following users are the scum of this community and s
 * "ItzAssassin"- (can he even code in java?. no i dont think so...).
 * "Kappios"- uses notifyz core and says he is coding it xdd fuck your self.
 * "Mython/MittenDev" - Skid and harmless asf xddd. "Claimed he doxed me" (he thinks my name is alex)
+* "HarmfulAim" - Thinks he's a developer and he thinks his server is popular af he's also previously ddosed and probably still does, he's banned from mcm for ddos threats and says I dOnT DdOs
